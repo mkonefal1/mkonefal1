@@ -7,4 +7,4 @@ Outside of work and study, I am interested in Linux, cybersecurity, video games 
 
 - [Twitter](https://twitter.com/mkonefal1)
 - [Linkedin](https://www.linkedin.com/in/mateusz-konefa%C5%82-943954121/)
-- [Personal website](mkonefal.pl)
+- [Personal website](https://mkonefal.pl)
